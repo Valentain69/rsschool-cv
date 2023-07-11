@@ -1,1 +1,1 @@
-https://github.com/Valentain69/rsschool-cv/blob/rsschool-cv-html/
+https://github.com/Valentain69/rsschool-cv/
